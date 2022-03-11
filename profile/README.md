@@ -1,4 +1,4 @@
-![Logo](https://cdn.discordapp.com/attachments/844634304784367626/946175242294951946/Untitled1028_20220223174213.png)
+![Logo](https://cdn.discordapp.com/attachments/949103787296038912/951638046070161418/Untitled-2.png)
 
 
 # 🚀 Welcome to SOUL!
